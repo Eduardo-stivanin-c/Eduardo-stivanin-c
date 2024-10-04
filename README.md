@@ -1,3 +1,4 @@
+![17280829766241902152877086712882](https://github.com/user-attachments/assets/64a7905a-e180-49cf-874a-d16bbb02d6bb)
 - 👋 Olá, eu sou @Eduardo-stivanin-c
 - 👀 Eu estou interessado em ...
 - 🌱 atualmente estou interessado em busca de emprego
