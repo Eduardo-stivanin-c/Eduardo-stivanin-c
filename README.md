@@ -14,6 +14,8 @@ Sou homem, branco , heterosexual
 
 <image  src="https://cdn.discordapp.com/attachments/1187437959025270876/1214704628378116176/20240305_193527.jpg?ex=65fa14d7&is=65e79fd7&hm=a3bb1537d4aaeea56a035fdd178ad9e793afad692a32154dfdf368a773a69c5d&"></image>
 
+<img src="
+https://www.instagram.com/p/DA9FxKCPpX2h2oq4iERQnYuC4SBRHQx-DyV3gY0/?igsh=YzljYTk1ODg3Zg==">
 </table>
 
  
