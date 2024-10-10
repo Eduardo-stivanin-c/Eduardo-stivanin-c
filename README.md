@@ -4,7 +4,7 @@
 - 🌱 atualmente estou interessado em busca de emprego
 - 💞️ Eu estou  procurando colaborar com projeto R-tea(feito)  ...
 - 📫 1sfr2d@gmail.com ...
-  <table>
+ 
 
 Sou homem, branco , heterosexual
 
